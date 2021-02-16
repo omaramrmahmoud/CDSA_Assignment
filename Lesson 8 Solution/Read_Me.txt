@@ -1,0 +1,1 @@
+There was no Assignments for Lecture 8 as the Lecture was cancelled due to Holidays
